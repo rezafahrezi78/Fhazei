@@ -1,0 +1,2 @@
+# Fhazei
+Future better
